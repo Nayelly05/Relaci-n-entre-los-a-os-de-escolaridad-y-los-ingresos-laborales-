@@ -1,0 +1,1 @@
+# Relaci-n-entre-los-a-os-de-escolaridad-y-los-ingresos-laborales-
